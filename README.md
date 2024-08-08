@@ -12,6 +12,8 @@
   🖤 **Work hard stay humble** 🖤
   🖤 **stay cool but dont freeze** 😁🖤
 
+  Heres my other github profile https://github.com/genevasapphire/
+
 
 
 
