@@ -1,7 +1,7 @@
-- 👋 Hi, **I’m Geneva Averia**
+- 👋 Hi, **I’m Geneva Averia - SEO Off Page Specialist**
 - 👀 I’m interested in ...coding, 🖥️ web development, search engine optimization, surfing the web and under the sun🏄🏄😆 
 - 🌱 I’m currently learning ...full stack web development using django/python framework - programming language
-- 💞️ I’m looking to collaborate on ... bsta yung taong same kami ng interest both sharing informations about coding and projects were currently working on. 
+- 💞️ I’m looking to collaborate on ... bsta yung taong same kami ng interest both sharing informations about coding and digital marketing. 
 - 📫 How to reach me ...just google my name 😜😉
 - 😄 Pronouns: ...you can call me Bangz XD
 - ⚡ Fun fact: ... may crush ♥️ akong seaman HAHAHAH kaso its kinda unrequitted love (huhu) *unrequitted love is the sweetest hell on earth
