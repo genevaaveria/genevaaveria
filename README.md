@@ -2,12 +2,9 @@
 - 👀 I’m interested in ...coding, 🖥️ web development, search engine optimization, surfing the web and under the sun🏄🏄😆 
 - 🌱 I’m currently learning ...full stack web development using django/python framework - programming language
 - 💞️ I’m looking to collaborate on ... bsta yung taong same kami ng interest both sharing informations about coding and digital marketing. 
-- 📫 How to reach me ...just google my name 😜😉
-- 😄 Pronouns: ...you can call me Bangz XD
-- ⚡ Fun fact: ... may crush ♥️ akong seaman HAHAHAH kaso its kinda unrequitted love (huhu) *unrequitted love is the sweetest hell on earth
-                   specially when youve fallen deeply in love to someone forbidden...like your bestfriend or tropa 😄😄
-                  (by the way.. im a single mom of a 10 year old Filipino-German 🇩🇪 kiddo. tatay ng anak ko seaman 🚢 din jeeezz 😄😄😄...he was then a Captain
-                  under **BBC Chartering - Briese Schiffahrt** nung nakilala ko.
+- 📫 How to reach me ...just google my name 😜😉kidding aside +966 0531359278
+- 😄 Pronouns: ...you can call me Bangz/Maria XD
+- ⚡ Current Status: ... Been working overseas on middle east for years. 3 years in Kuwait. And currently right now in Riyadh, Saudi Arabia.
 
   🖤 **Work hard stay humble** 🖤
   🖤 **stay cool but dont freeze** 😁🖤
